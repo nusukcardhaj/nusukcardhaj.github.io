@@ -1,1 +1,1 @@
-# nusukcardhaj.github.io
+# nusukcard.haj
